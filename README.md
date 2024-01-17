@@ -1,4 +1,5 @@
-![image](https://github.com/hjhgitw/hjhgitw/assets/41398181/d3a869fe-e1af-421d-9f87-752817131b30)
+![image](https://github.com/hjhgitw/hjhgitw/assets/41398181/a1f5abb2-6194-4315-b160-6286e3b1d734)
+
 
 ### Hi there 👋
 Here are some ideas to get you started:
