@@ -1,4 +1,6 @@
 ![java21](https://github.com/hjhgitw/hjhgitw/assets/41398181/8eb4474b-26fd-46e7-80e8-7176d46fdb61)
+![image](https://github.com/hjhgitw/hjhgitw/assets/41398181/cf949616-cf98-4ac5-af3b-2f5f596defca)
+
 
 
 ### Hi there 👋
